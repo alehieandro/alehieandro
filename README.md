@@ -7,4 +7,4 @@ You have learned acceptance and forgiveness;
 But you lack knowledge and understanding;
 You will be trapped forever;
 The past is ever-present;
-## The sun smiles at you with eternal malice;
+## The sun smiles at you with eternal malice.
